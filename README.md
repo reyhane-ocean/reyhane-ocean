@@ -1,4 +1,4 @@
-# 🌊 Hi, I'm Reihane Ocean!
+# 🌊 Hi, I'm Reyhane Ocean!
 
 ### 🛡️ Cybersecurity Student | Network Security Enthusiast | 🐧 Linux Learner
 
